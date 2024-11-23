@@ -1,1 +1,1 @@
-# woodexidealsore
+# the ideal store
